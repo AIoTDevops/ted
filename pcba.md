@@ -1,2 +1,17 @@
-1. https://www.hqchip.com/  [华秋商城，华强芯城](https://www.hqchip.com/)
+- [华秋商城  华强芯城](https://www.hqchip.com/)  
+- [华秋总公司](https://www.huaqiu.com/)
+- [华秋开发](http://www.elecfans.com/kf/)
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+
 
